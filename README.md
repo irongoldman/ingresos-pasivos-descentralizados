@@ -20,3 +20,9 @@ Aquí se explica cómo funcionan estos sistemas, de dónde salen las recompensas
 
 La información es educativa e informativa. No constituye asesoramiento financiero.
 
+
+---
+
+Más información en https://technoeconomia.com/
+
+
